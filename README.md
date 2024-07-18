@@ -2,7 +2,7 @@
 
 **`My Name is Hoàng , Welcome to Wibucrypto`**
 
-Checkout to my Youtube channel "[Wibucrypto][youtube]" and Telegram Channel
+Checkout to my Youtube channel and Telegram Channel
 
    <p align="left">
       <a href="https://www.youtube.com/c/wibucrypto2201?sub_confirmation=1">
